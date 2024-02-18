@@ -6,7 +6,7 @@
   
 - 📚 When I'm not immersed in coding practice, you might find me tending to my plants, at the dog park, experimenting with small coding projects, or engaging in video games with friends. My current addiction is Baldur's Gate 3 (great job Larian Studios!)
   
-- 📫 How to reach me: LinkedIn is the best way to contact me! I recieve notifications instantly, so unless my hands are full you should recieve a speedy response!
+- 📫 How to reach me: LinkedIn is the best way to contact me, unless my hands are full you should receive a speedy response!
 
 Thank you for taking the time to learn about me, can't wait to connect!
 
